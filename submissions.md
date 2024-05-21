@@ -1,5 +1,5 @@
 # Submissions
+
 Add your submissions below
 
-## haxxsniper
-placeholder
+AnhPham - FucktheKingCode - I will update X funtion
